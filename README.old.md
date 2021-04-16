@@ -1,1 +1,0 @@
-# mhw-armory-v2
